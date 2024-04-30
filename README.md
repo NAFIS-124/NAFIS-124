@@ -3,5 +3,5 @@
 
 TEAM69-HENTAI old account dan🙂💔
 
-![Screenshot_20240429-225116](https://github.com/NAFIS-124/NAFIS-124/assets/168470132/cdcad0a4-cc28-4389-b58d-7d7314cc5838)
+![1668495346_6](https://github.com/NAFIS-124/NAFIS-124/assets/168470132/1a92bc55-f1ea-449d-b666-3583d05006b0)
 
